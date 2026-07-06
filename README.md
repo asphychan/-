@@ -1,2 +1,2 @@
 # [![IMG-7528.jpg](https://i.postimg.cc/fRHcVgZn/IMG-7528.jpg)](https://postimg.cc/BjKLypXM)
-ᅠ     .   ✧     asphy / asphyxia      ᛝ𓈒    shethey prns   
+  .   ✧     asphy / asphyxia      ᛝ𓈒    shethey prns   
